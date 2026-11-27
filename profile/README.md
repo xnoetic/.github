@@ -6,7 +6,7 @@
 
 为智能体掌火 —— 建造智能体，也让它们值得托付。
 
-[xnoetic.com](https://xnoetic.com) · [longe](https://tether.xnoetic.com)
+[xnoetic.com](https://xnoetic.com) · [longe](https://longe.xnoetic.com)
 
 </div>
 
